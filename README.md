@@ -1,2 +1,2 @@
 ## Hi there 👋
-🙋‍♀️ Welcome to SlushinPS.
+🙋‍♀️ Welcome to SlushinPS profile repo!
